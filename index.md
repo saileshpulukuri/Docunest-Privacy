@@ -85,6 +85,6 @@ Contact
 If you have any questions regarding this Privacy Policy, you may contact:
 
 Developer: Sailesh Pulukuri
-Email: sailesh.pulukuri.dev@gmail.com
+Email: sailesh.pulukuri04@gmail.com
 
 © 2026 DocuNest
