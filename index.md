@@ -91,7 +91,7 @@ This Privacy Policy may be updated periodically to reflect changes or improvemen
 If you have any questions regarding this Privacy Policy, you may contact:
 
 **Developer:** Sailesh Pulukuri  
-**Email:** sailesh.pulukuri.dev@gmail.com  
+**Email:** sailesh.pulukuri04@gmail.com  
 
 ---
 
